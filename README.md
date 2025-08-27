@@ -113,7 +113,7 @@ Antes de adentrarme en el mundo de la programación, desarrollé una gran pasió
 - [Video 5](https://drive.google.com/file/d/1H9Vn5jReOBPKNzwtG3yppBIeGMBmm387/view?usp=sharing) (Este último fue pensado como banda sonora para el **Proyecto Cartas**.)
 
 ---
-- [Enlace a Linkedin]([https://drive.google.com/file/d/15FDNBDmL8nNkf8o-x9rQLUFmwhAr4mDF/view?usp=sharing](https://www.linkedin.com/in/carlosgrm1444/))  
+- [Enlace a Linkedin](https://www.linkedin.com/in/carlosgrm1444/)  
 
 
 

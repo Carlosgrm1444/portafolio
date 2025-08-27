@@ -110,7 +110,11 @@ Antes de adentrarme en el mundo de la programación, desarrollé una gran pasió
 - [Video 2](https://drive.google.com/file/d/1qF3V_EJltQBqC3jKtWIMqcxeRs0hMAsP/view?usp=sharing)  
 - [Video 3](https://drive.google.com/file/d/1MD_EYegpegr1tt9Ubyl7SBzEMt2mbzqT/view?usp=sharing)  
 - [Video 4](https://drive.google.com/file/d/15FDNBDmL8nNkf8o-x9rQLUFmwhAr4mDF/view?usp=sharing)  
-- [Video 5](https://drive.google.com/file/d/1H9Vn5jReOBPKNzwtG3yppBIeGMBmm387/view?usp=sharing) (Este último fue pensado como banda sonora para el **Proyecto Cartas**.)  
+- [Video 5](https://drive.google.com/file/d/1H9Vn5jReOBPKNzwtG3yppBIeGMBmm387/view?usp=sharing) (Este último fue pensado como banda sonora para el **Proyecto Cartas**.)
+
+---
+- [Enlace a Linkedin]([https://drive.google.com/file/d/15FDNBDmL8nNkf8o-x9rQLUFmwhAr4mDF/view?usp=sharing](https://www.linkedin.com/in/carlosgrm1444/))  
+
 
 
 
